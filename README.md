@@ -11,6 +11,9 @@ Discord: fink#1013
 Twitch: twitch.tv/fink0o1
 
 
+![tenor (1)](https://user-images.githubusercontent.com/102363811/181965741-2e53ab92-1273-4e40-ad13-92f281cafd36.gif)
+
+
 <!--
 **FinkDev/FinkDev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
