@@ -11,7 +11,7 @@ Discord: fink#1013
 Twitch: twitch.tv/fink0o1
 
 
-<iframe src="https://clips.twitch.tv/embed?clip=AuspiciousGleamingAlfalfa4Head-7H0PFtNBTKsHTPqi&parent=www.example.com" frameborder="0" allowfullscreen="true" scrolling="no" height="378" width="620"></iframe>
+
 
 ![tenor (1)](https://user-images.githubusercontent.com/102363811/181965741-2e53ab92-1273-4e40-ad13-92f281cafd36.gif)
 
