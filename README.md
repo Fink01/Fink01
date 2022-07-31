@@ -73,7 +73,9 @@ Carrera
 
 I like the streams of:
 twitch.tv/bbures
+
 twitch.tv/ElShekito
+
 twitch.tv/S4vitaar
 
 I like the Dogs
