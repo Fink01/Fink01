@@ -10,8 +10,10 @@ Discord: fink#1013
 
 Twitch: twitch.tv/fink0o1
 
-![End_Crystal_(Slateless)](https://user-images.githubusercontent.com/102363811/182040886-5003755c-2756-453f-8058-bb3138b7fdf6.gif)
 
+
+
+https://user-images.githubusercontent.com/102363811/182040913-697859e2-b357-43fd-8cc4-00cb438b9614.mp4
 
 
 ![tenor (1)](https://user-images.githubusercontent.com/102363811/181965741-2e53ab92-1273-4e40-ad13-92f281cafd36.gif)
