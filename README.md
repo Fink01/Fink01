@@ -10,6 +10,7 @@ Discord: fink#1013
 
 Twitch: twitch.tv/fink0o1
 
+![End_Crystal_(Slateless)](https://user-images.githubusercontent.com/102363811/182040886-5003755c-2756-453f-8058-bb3138b7fdf6.gif)
 
 
 
