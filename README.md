@@ -79,9 +79,12 @@ twitch.tv/ElShekito
 
 twitch.tv/S4vitaar
 
-I like the Dogs
+I love the Dogs
 
 ![dog](https://user-images.githubusercontent.com/102363811/182041342-d1663ced-0cb5-43b8-99ba-92d729c13f83.gif)
+
+![fatdog-dog](https://user-images.githubusercontent.com/102363811/182041395-8a764919-dc3c-4792-92dc-2ab6d218f6b3.gif)
+
 
 
 
