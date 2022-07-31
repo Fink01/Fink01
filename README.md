@@ -10,8 +10,24 @@ Discord: fink#1013
 
 Twitch: twitch.tv/fink0o1
 
+🎇I like the music of:
+C.R.O
+Lil darkie
+Robleis
+MDB Crew (Bardero$)
+Bhavi
+t00 yugVn
+Duki
+underaiki
+rojuu
+saramalacara
+dillom
+kaktov
+muerejoven
+trashu
 
 
+![orslok-rojuu](https://user-images.githubusercontent.com/102363811/182041157-61f7e48a-d05e-424d-915b-fb3970d8c8d1.gif)
 ![134ba9638c65742e9185f83a24fa9692](https://user-images.githubusercontent.com/102363811/182040994-942452f1-189b-4f89-a986-d36933b02c01.gif)
 
 
