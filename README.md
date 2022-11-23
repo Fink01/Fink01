@@ -6,7 +6,7 @@
 
 Youtube https://www.youtube.com/channel/UC9RMbHfbDtVK3TWfE8B-w2g
 
-Discord: fink#1013
+Discord: t00fink#2684
 
 Twitch: twitch.tv/fink0o1
 
@@ -51,17 +51,9 @@ SpreenDMC
 
 Angie Velasco
 
-Resucting
-
-NotRamix
-
-Houp
-
 AriusBoy
 
 Fzst
-
-YuriiHD
 
 Carrera
 
@@ -74,10 +66,6 @@ Carrera
 I like the streams of:
 
 twitch.tv/bbures
-
-twitch.tv/ElShekito
-
-twitch.tv/S4vitaar
 
 I love the Dogs
 
