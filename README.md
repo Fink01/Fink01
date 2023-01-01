@@ -6,9 +6,7 @@
 
 Youtube https://www.youtube.com/channel/UC9RMbHfbDtVK3TWfE8B-w2g
 
-Discord: t00fink#2684
-
-Twitch: twitch.tv/fink0o1
+Discord: t00fink#0666
 
 🎇I like the music of:
 
