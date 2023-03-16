@@ -4,9 +4,9 @@
 
 🌎 You can find me:
 
-Youtube https://www.youtube.com/channel/UC9RMbHfbDtVK3TWfE8B-w2g
+Youtube https://www.youtube.com/@Fink01
 
-Discord: t00fink#0666
+Discord: fink#8356
 
 🎇I like the music of:
 
