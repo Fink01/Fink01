@@ -1,6 +1,8 @@
 
 ![giphy (7)](https://user-images.githubusercontent.com/102363811/230152533-5f419cdc-302e-4618-b256-b2db583f2be5.gif)
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/1cpFpzRFtiDa7nTET2xm4s?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 <!--
 **FinkDev/FinkDev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
